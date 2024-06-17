@@ -1,4 +1,4 @@
- **seja bem ao meu projeto**
+ **seja bem vindo ao meu projeto**
 
  ![](https://media1.tenor.com/m/y01-MZ0Ko_cAAAAC/starstruckmovie-daniellecampbell.gif)
 
